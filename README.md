@@ -1,0 +1,1 @@
+# practical_work_2_OPISM_Mailatova_Nataliia
